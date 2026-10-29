@@ -277,7 +277,7 @@ Contributions, suggestions, and bug reports are welcome.
 **Raman Gahlawat**
 
 - GitHub: [Your GitHub Profile](https://github.com/ramangahlawat5)
-- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/ramangahlawat5)
+- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/ramangahlawat5/)
 
 ---
 
